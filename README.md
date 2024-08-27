@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GavinCurran
+- 👀 I’m interested in coding, music, hiking, and the outdoors.
+- 🌱 I’m currently learning python
+- 📫 How to reach me @gavincurran2005@gmail.com
+- 😄 Pronouns: He/Him
